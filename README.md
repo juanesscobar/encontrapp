@@ -1,3 +1,7 @@
+<img width="1912" height="908" alt="image" src="https://github.com/user-attachments/assets/1ec1bdc5-4280-4e7c-a99f-edccf9616896" />
+
+
+
 \# encontrapp
 
 
